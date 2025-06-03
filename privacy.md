@@ -50,4 +50,4 @@
 ## 第9条（お問い合わせ）
 本ポリシーに関するご質問、開示・訂正等の請求は以下までお願いいたします。
 
-- 連絡先：jobaxis.info@gmail.com
+- 連絡先：shukatsu.calendar.official@gmail.com
